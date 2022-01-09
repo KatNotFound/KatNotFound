@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KatNotFound
+- I like books, cats, mythology and anime!
+- I have depression and anxiety! :')
+- I am... a minor!
+- I have absolutely no idea what I'm doing! :D
+- Potatoes, mate, potatoes.
